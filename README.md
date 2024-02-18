@@ -1,0 +1,2 @@
+- 👋 Hi, I’m a learner, who embrace technologies and its opportunities.
+- 👀 I’m interested in collaborated works.
